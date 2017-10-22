@@ -1,3 +1,3 @@
 ## Inquiries
 
-Please direct inquiries relating to Distrix Networks Ltd. to <inquiries@distrix.com>.
+Please direct requests for information to to <inquiries@distrix.com>.
