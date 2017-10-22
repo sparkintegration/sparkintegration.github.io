@@ -1,3 +1,3 @@
 ## Inquiries
 
-Please direct requests for information to to <inquiries@distrix.com>.
+Please direct requests for information to <inquiries@distrix.com>.
